@@ -34,3 +34,36 @@ the coffeeshop sits square along the main
 and wooden doors invite the den of words
 where rain might trap a man in deadly beans;
 
+
+what guilt should be dispensed at your behest,
+whose manifest of raw delusion shares
+the world around, and likens me to wolves,
+or lesser crawling things on scattering legs?
+whose schemas burden me with longing pores,
+and who, by all accounts, knows less of grace
+than any ribbon cutting school-girl boiled
+alive with tits on hooks and severed tongue.
+No, in a million ways, I feel no weight
+Of moral wrongs that you may yet describe.
+Tis a God which robs the smaller sex.
+and tis a God which blunted me with violence,
+who bruised and fashioned lies of moral faith
+in which to hang the ever sickly-ill
+upon a cross of whitened straightened teeth
+And pretty there my body moves about
+with windy changes, lovely thoughts, and urine
+that runs from crotch to crucifix, while balding
+enraged, indecent liars tell their fables
+in town after town, community of dolts
+who know so well the hearts of men like me.
+You low and succor'd rat of dismal grunts,
+I'd spit on you if had the chance to tilt
+your life to darker habits. Prime of life,
+an ape distinctly moves aloof of Heav'n.
+I hate the lot of you and wish that I'd
+been born without the foggy comprehension 
+that we alone inherited from dust.
+I only wish to be alone, these days.
+Without the lumps of coal you hurl at me,
+Without the friendships crusted o'er with ash.
+Go plan your marriages and leave me be.
