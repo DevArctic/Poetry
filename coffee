@@ -33,6 +33,13 @@ when every hall they walk encircles them;
 the coffeeshop sits square along the main
 and wooden doors invite the den of words
 where rain might trap a man in deadly beans;
+which autumn brought us pumpkin spice and health?
+I go by foot inside the volleyed ceiling
+brushing past the sweaters shielding lame
+demented place - so white, this city, pale,
+and growing paler, 
+
+
 
 
 what guilt should be dispensed at your behest,
